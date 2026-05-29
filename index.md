@@ -1,1 +1,1 @@
-Hello! My name is Ruoning Gu (Judy).
+Hello! My name is Judy.
